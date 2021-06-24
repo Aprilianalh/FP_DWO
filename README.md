@@ -8,4 +8,5 @@ Kelompok kami beranggotakan 3 orang, yaitu :
 2) Tiara Karunia Miranti (18082010014)
 3) Apriliana Latifah Hanum (18082010022)
 Sekian, perkenalan singkat dari kami. Semoga dapat bermanfaat.
+
 Wassalamualaikum Wr. Wb.
