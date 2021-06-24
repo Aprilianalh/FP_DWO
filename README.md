@@ -7,6 +7,6 @@ Kelompok kami beranggotakan 3 orang, yaitu :
 1) Diah Fatmawati (18082010012)
 2) Tiara Karunia Miranti (18082010014)
 3) Apriliana Latifah Hanum (18082010022)
-Sekian, perkenalan singkat dari kami. Semoga dapat bermanfaat.
 
+Sekian, perkenalan singkat dari kami. Semoga dapat bermanfaat.
 Wassalamualaikum Wr. Wb.
